@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Michael Bottlemy  @mbottlemy
-- 👀 I’m interested in narrow guage railroading, playing card decks, mountain biking.   
+- 👀 I’m interested in narrow guage railroading, playing card decks, mountain biking, kayaking.   
 - 🌱 I’m currently learning GIT Hub dteails
-- 💞️ I’m looking to collaborate on not sure right now
+- 💞️ I’m looking to collaborate on not sure right now. I'll get back to this question. 
 - 📫 How to reach me mbottlemy25@gmail.com
 
 <!---
